@@ -30,4 +30,4 @@ I can. Becasue I am a robot now with Adobe software installed in my brain chip. 
 
 ### premiere
 <a href="http://www.youtube.com/watch?feature=player_embedded&v=cgGUaQ_q7dc?si=LFuvTMLE8skpjarE" target="_blank"><img src="http://img.youtube.com/vi/YOUTUBE_VIDEO_ID_HERE/0.jpg" 
-alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+alt="Fuckin Fish" width="240" height="180" border="10" /></a>
