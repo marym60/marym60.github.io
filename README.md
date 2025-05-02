@@ -30,4 +30,4 @@
 1. Let ugliness live in your world, your future landscape,
 1. remember it fondly and it will sparkle onto you.
 
-![alt text](https://c8.alamy.com/comp/JY8KT2/family-of-ducks-walking-a-straight-line-in-front-of-the-sea-behind-JY8KT2.jpg)
+![alt text](![IMG_7081](https://github.com/user-attachments/assets/7ae27b61-6f17-4df0-9240-3fdb40b551e2)
